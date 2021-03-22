@@ -23,9 +23,10 @@
 - 💞️ I’m looking to collaborate on placement preparation...
 - 📫 You can reach me to 👉 {🔗 🆔 https://www.linkedin.com/in/siddharth-shukla-b035181a0/ (Most Active 💻 )} .....
                          👉  {🔗 🆔 https://www.facebook.com/siddharth.shukla.355138 (Less than 20 days in a month 📱)}
--    My daily hobbies are 
+-    My daily hobbies are :-
+
 -                          Running🏃
--    
+   
 -                          Cycling🚴
                           
 -                          Badminton🎾
